@@ -1,3 +1,3 @@
 # UASRPL2017
 Untuk Nilai UAS
-Dengan Baik dan 
+Dengan Baik dan Bagus
